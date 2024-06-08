@@ -1,1 +1,1 @@
-Hi, I'm f1uffy. I named myself this after my cat, who's extremely fluffy (not the one in my profile pic, that's a different one of my cats). It started out as f1uffyCatsAreCute (because they are), but eventually I decided to shorten it.
+Hi, I'm f1uffy. I named myself this after my cat, who's extremely fluffy (not the one in my profile pic, that's a different one of my cats). It started out as f1uffycatsarecute (because they are), but eventually I decided to shorten it.
